@@ -1,1 +1,1 @@
-# -Market-Expansion-and-Financial-Insights
+# Market-Expansion-and-Financial-Insights
